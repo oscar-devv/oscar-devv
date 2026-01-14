@@ -43,6 +43,9 @@
 </div>
 
 ###
-
+<div align="center">
+  <a href="https://wakatime.com/a-look-back-at-2025/ad99d1c8-09b0-4ffc-99f4-eddd90af6bb2/lwxsdnytox" target="_blank">
+  </a>
+</div>
 
 ###
